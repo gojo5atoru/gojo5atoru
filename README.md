@@ -9,7 +9,7 @@
 
 
 
-ㅤ![Gojo Satoru](https://github.com/user-attachments/assets/8a6cd62f-7552-4ed2-8c4e-0d17b2520030)
+ㅤ<img width="736" height="298" alt="Untitled1128_20260112193622" src="https://github.com/user-attachments/assets/9aa453e4-0c7e-4e71-95a3-08d932d2632b" />
 
 
 
