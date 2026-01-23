@@ -3,8 +3,6 @@
 ![](https://komarev.com/ghpvc/?username=primalmercy&color=d7d7d7&style=plastic&label=‿‿⠀cursed⠀spirits)
 ---
 <p align="center">𓎢𓎠𓎟𓎠𓎢ㅤㅤ˙ㅤㅤ𓎢𓎠𓎟𓎠𓎢</p>
-ㅤㅤㅤ
-
 
 ㅤ<a href="https://rentry.co/fullmoonfull-life"><img width="142" height="98" alt="Untitled1133_20260123101623" src="https://github.com/user-attachments/assets/18c9ae4a-27f5-4dde-bfdc-593ca57476f2"/></img></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤ <a href="https://risettekawa.atabook.org/"><img width="157" height="107" alt="Untitled1133_20260123104623" src="https://github.com/user-attachments/assets/fa80f48a-54df-4bd7-818b-7d1b206739c0" /></img></a>
 
