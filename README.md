@@ -9,7 +9,7 @@
 
 
 
-ㅤ<a href="https://rentry.co/fullmoonfull-life"><img width="284" height="197" alt="Untitled1133_20260123101623" src="https://github.com/user-attachments/assets/18c9ae4a-27f5-4dde-bfdc-593ca57476f2"/></img></a>
+ㅤ<a href="https://rentry.co/fullmoonfull-life"><img width="142" height="98" alt="Untitled1133_20260123101623" src="https://github.com/user-attachments/assets/18c9ae4a-27f5-4dde-bfdc-593ca57476f2"/></img></a>
 
 
 
