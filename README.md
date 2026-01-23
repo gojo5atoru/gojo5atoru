@@ -14,7 +14,18 @@
 
 
 
-wip
+<!--
+Source - https://stackoverflow.com/q
+
+Posted by Rafael Borja, modified by community. See post 'Timeline' for change history
+
+Retrieved 2026-01-23, License - CC BY-SA 4.0
+-->
+
+
+
+<a href="https://rentry.co/fullmoonfull-life"><img width="284" height="197" alt="Untitled1133_20260123101623" src="https://github.com/user-attachments/assets/18c9ae4a-27f5-4dde-bfdc-593ca57476f2"/></img></a>
+
 ㅤㅤㅤ
 
 
