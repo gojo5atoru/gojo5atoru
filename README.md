@@ -9,7 +9,7 @@
 
 
 
-ㅤ<img width="736" height="298" alt="Untitled1128_20260112193622" src="https://github.com/user-attachments/assets/9aa453e4-0c7e-4e71-95a3-08d932d2632b" />
+ㅤ<a href="https://rentry.co/fullmoonfull-life"><img width="284" height="197" alt="Untitled1133_20260123101623" src="https://github.com/user-attachments/assets/18c9ae4a-27f5-4dde-bfdc-593ca57476f2"/></img></a>
 
 
 
@@ -24,7 +24,7 @@ Retrieved 2026-01-23, License - CC BY-SA 4.0
 
 
 
-<a href="https://rentry.co/fullmoonfull-life"><img width="284" height="197" alt="Untitled1133_20260123101623" src="https://github.com/user-attachments/assets/18c9ae4a-27f5-4dde-bfdc-593ca57476f2"/></img></a>
+<img width="736" height="298" alt="Untitled1128_20260112193622" src="https://github.com/user-attachments/assets/9aa453e4-0c7e-4e71-95a3-08d932d2632b" />
 
 ㅤㅤㅤ
 
