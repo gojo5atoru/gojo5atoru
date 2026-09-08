@@ -9,3 +9,5 @@
 i have no motivation to make my gh profile cute go read my rentry instead
 
 INACTIVE
+
+also decayed&decrepit fans plzzz plzz plzz interatc if u see me
